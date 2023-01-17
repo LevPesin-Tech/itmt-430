@@ -1,5 +1,5 @@
 # Lev Pesin
-  1. ![image](https://user-images.githubusercontent.com/78404922/212820636-c78c062f-d279-48ef-939b-b3631667f8dd.png)
+  1. ![dw](https://user-images.githubusercontent.com/78404922/212821266-aac3753f-f7bb-48d5-834d-08713d50ec5f.jpg)
   2. ![20210421_135708](https://user-images.githubusercontent.com/78404922/212820700-2f2bb719-7637-4475-8083-0383fbaa5222.jpg)
 ## I am From Russia
 ## My first computing device was a lenovo laptop
